@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Nobodyy1
+Actualmente me dedico a configurar scripts de fivem. :)
